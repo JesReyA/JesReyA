@@ -15,6 +15,6 @@
 
 - Full-Stack & Mobile Developer with interest in AI
 - Currently studying Computer Engineering
-- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://drive.google.com/file/d/1XZw5KoAUAWZl0Ep6MSwTmqGqA6TcG6ih/view?usp=sharing)
+- This is [my resume](https://drive.google.com/file/d/1XZw5KoAUAWZl0Ep6MSwTmqGqA6TcG6ih/view?usp=sharing)
 
 <br><br>
