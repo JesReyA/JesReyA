@@ -14,7 +14,7 @@
 - Currently studying Computer Engineering
 - This is [my resume](https://drive.google.com/file/d/1XZw5KoAUAWZl0Ep6MSwTmqGqA6TcG6ih/view?usp=sharing)
 
-<br><br>
+<br>
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
 
