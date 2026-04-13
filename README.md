@@ -13,6 +13,7 @@
 - Full-Stack & Mobile Developer with interest in AI
 - Currently studying Computer Engineering
 - This is [my resume](https://drive.google.com/file/d/1XZw5KoAUAWZl0Ep6MSwTmqGqA6TcG6ih/view?usp=sharing)
+- Feel free to reach me out **jesreyav@gmail.com**
 
 <br>
 
